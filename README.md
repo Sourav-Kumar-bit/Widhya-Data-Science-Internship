@@ -1,2 +1,8 @@
 # Widhya-Data-Science-Internship
-Tasks Solutions
+
+Solutions:
+
+Week 1: UPDATED!
+
+
+Let's Connect: https://www.linkedin.com/in/sourav-kumar-bb46b2196
